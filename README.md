@@ -1,3 +1,3 @@
-Thou toilet paper,
+Thou toilet paper
 Is mightier,
-Than thou sword
+Than thou sword.
